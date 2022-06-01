@@ -12,5 +12,4 @@ Stepn GPS Spoofer last version actual on 01.06.2022
 - Choose Sneaker and click on "run"
     
 
-Stepn MoveToEarn
 ![alt-текст](https://coinmarketbag.com/wp-content/uploads/2022/05/BEST-AUTORUN-BOT-STEPN-FREE-STEPN-GPS-HACK-AUTO-780x470.jpg)
